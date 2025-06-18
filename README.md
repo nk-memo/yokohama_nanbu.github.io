@@ -1,1 +1,0 @@
-# yokohama_nanbu.github.io
